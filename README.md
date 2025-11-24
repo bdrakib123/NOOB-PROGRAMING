@@ -1,4 +1,4 @@
-# 🇧.🇩. NOOB-PROGRAMING 
+# NOOB-PROGRAMING 
 please silent baby
 <img src="https://i.imgur.com/Q89m3ix.jpeg" width="100%"/>
 
